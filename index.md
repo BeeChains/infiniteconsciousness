@@ -1,5 +1,7 @@
 ## INFINITE CONSCIOUSNESS
 
+[![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
+
 B.
 
 Welcome back! Just thinking of B, and what is means, TO BE, strengthens our connection with the INFINITE CONSCIOUSNESS of DIVINE BEING WITHIN.
